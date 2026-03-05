@@ -30,3 +30,9 @@ Microsoft MVP, Microsoft[**](https://www.linkedin.com/in/hsouzaeduardo/?local
 
 
 
+https://web.dio.me/lab/geracao-de-vulnerabilidades/learning/e2a0f011-72fc-4928-a216-868742656279?back=/track/bairesdev-machine-learning-training
+
+
+
+
+
